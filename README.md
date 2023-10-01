@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👀 About Me:
 I am a game and application developer!<br><br>See my projects here: https://github.com/SCREW-LTD/<br><br>Partner of:<br>· Epic Games<br>· Xsolla<br>· VK Company
 
 
