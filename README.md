@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI developer.<br><br>Use Capricorn AI: https://chat.screwltd.com/<br><br>See my projects here: https://github.com/SCREW-LTD/<br><br>Partner of:<br>· Epic Games<br>· Xsolla<br>· VK Company
+AI developer.<br><br>Use Capricorn AI: https://chat.screwltd.com/<br><br>See my projects here: https://github.com/Acceptance-Group/<br><br>Worked with:<br>· Epic Games<br>· Xsolla<br>· VK Company
 
 
 ## 🌐 Socials:
